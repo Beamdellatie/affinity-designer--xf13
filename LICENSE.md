@@ -1,4 +1,4 @@
-
+elite Automation for Affinity Designer for macOS - blend modes and custom brushes is the best Affinity Designer for macOS automation, featuring blend modes and custom brushes.
 
 
 
